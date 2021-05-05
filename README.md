@@ -1,0 +1,1 @@
+# Tugas-Bahasa-Rakitan-dengan-Emulator-8086
